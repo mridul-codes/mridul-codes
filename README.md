@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @mridul-codes
 - 👀 I’m interested in learing new things.
 - 🌱 Self Codding and Self Learing. 
-- 💞️ For Indian recomeded YouTube channel "Code With Harry".
 - 📫 How to reach me ... mridulhaloi2021@outlook.com
