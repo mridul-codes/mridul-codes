@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @mridul-codes
 - 👀 I’m interested in learing new things.
 - 🌱 Self Codding and Self Learing. 
-- 📫 How to reach me ... mridulhaloi2021@outlook.com
+- 📫 How to reach me ... bvecmridulhaloi@outlook.com
